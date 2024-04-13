@@ -1,0 +1,8 @@
+![Screenshot 2024-04-13 094502](https://github.com/Bhargavi9391/tax/assets/157037629/9e98ba7a-faac-4939-81b9-47ec267969e1)
+![Screenshot 2024-04-13 094520](https://github.com/Bhargavi9391/tax/assets/157037629/f9427bc0-47f5-483b-9da9-98c529afd6a0)
+![Screenshot 2024-04-13 110146](https://github.com/Bhargavi9391/tax/assets/157037629/a251e4ed-02b3-46a7-bfeb-b6c0d1b68224)
+![Screenshot 2024-04-13 110159](https://github.com/Bhargavi9391/tax/assets/157037629/8979ed04-f7a2-4198-a0aa-55b961e1a649)
+![Screenshot 2024-04-13 112131](https://github.com/Bhargavi9391/tax/assets/157037629/76bf63a6-6200-4838-9e13-5254bfef37d7)
+![Screenshot 2024-04-13 112143](https://github.com/Bhargavi9391/tax/assets/157037629/a6aaf0af-f943-4ad7-bd38-f6242b4c8a82)
+![Screenshot 2024-04-13 112425](https://github.com/Bhargavi9391/tax/assets/157037629/df22fd02-3534-4fb9-b228-7bfd487902f4)
+![Screenshot 2024-04-13 112443](https://github.com/Bhargavi9391/tax/assets/157037629/ebedf831-55a8-4382-b0db-4a03659a2939)
